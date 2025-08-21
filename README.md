@@ -7,7 +7,7 @@
   This school year I aspire to finish off with having good grades and generally taking enjoyment in being in my classes this year, given its my last with the same people i've grown around. I am excited to gain some new experiences and skills and hope to have a good time. I will also be applying to colleges very soon, my top schools being UC Berkeley and UC Santa Barbra. I'll be sad knowing that theres a chance I will have to distance from my family after my senior year for college, however I plan to spend a ton of time with them and making new memories. I also have two french bulldogs, Rocky and Marlow, that I love very much and admire both their playful abilities and lazyness. Ulimately I have goals this year that consist of me striving for the best in terms of grades while making many more amazing memories.
 
   ## My Playlist!
-  I have so much love for music:[Link Text](https://open.spotify.com/playlist/32QZ4Mxe447zuaaNVJlnEI).
+  I have so much love for music:[Playlist](https://open.spotify.com/playlist/32QZ4Mxe447zuaaNVJlnEI).
 
 ## Mood Board
   ![Alt Text](https://legoteambuilding.rs/wp-content/uploads/2022/11/Pozadina-glavna-1.webp)
